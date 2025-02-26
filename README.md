@@ -10,6 +10,5 @@ Things I love to do:
 - Play Video Games
 - Study
 
-*follow me on IG* **_CHAR THIS IS FUN!_** 
 
 
